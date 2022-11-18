@@ -1,3 +1,3 @@
 # pickMoment  
 
-[https://jiwon-center.github.io/pickMem](https://dnfwlxo11.github.io/pickMem/#/)
+[https://jiwon-center.github.io/jiwon-center.github.io](https://jiwon-center.github.io/jiwon-center.github.io/#/)
